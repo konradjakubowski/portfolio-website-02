@@ -1,0 +1,2 @@
+# Konrad_Jakubowski_Portfolio_Webdeveloper_02
+
